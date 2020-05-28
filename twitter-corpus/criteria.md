@@ -57,6 +57,8 @@ List of Hashtags:
 |#coronasyllabus|
 |#covidteaching| 
 |#CovidCampus| 
+|#showmeyourppe|
+|#showmeyourmask|
 
 List of Keywords: 
 
